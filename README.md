@@ -1,1 +1,1 @@
-I hate RISC
+how do i make a comment
